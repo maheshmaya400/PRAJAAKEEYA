@@ -50,7 +50,7 @@ transparency, citizen participation, and ethical governance in a structured, acc
 
 | 🌐 Website | 🤖 Play Store | 🍎 App Store | 💻 GitHub |
 |:---:|:---:|:---:|:---:|
-| [Visit Site](#) | [Get it on Android](#) | [Get it on iOS](#) | [View Source](#) |
+| [Visit Site](https://www.prajaakeeya.org/) | [Get it on Android](https://play.google.com/store/apps/details?id=com.app.prajaakeeya) | [Get it on iOS](https://apps.apple.com/in/app/the-real-prajaakeeya/id1316882222) | [View Source](github.com/prajaakeeya) |
 
 | 📢 Telegram | ▶️ YouTube | 💼 LinkedIn | 📷 Instagram | 🐦 Twitter/X | 💬 Discord |
 |:---:|:---:|:---:|:---:|:---:|:---:|
