@@ -54,7 +54,7 @@ transparency, citizen participation, and ethical governance in a structured, acc
 
 | 📢 Telegram | ▶️ YouTube | 💼 LinkedIn | 📷 Instagram | 🐦 Twitter/X | 💬 Discord |
 |:---:|:---:|:---:|:---:|:---:|:---:|
-| [Join](#) | [Subscribe](#) | [Connect](#) | [Follow](#) | [Follow](#) | [Join Server](#) |
+| [Join](#) | [Subscribe](#) | [Connect](#) | [Follow](https://www.instagram.com/prajaakeeya_upp?igsh=MXB6aTJib2w1eDhneQ==) | [Follow](#) | [Join Server](#) |
 
 </div>
 
